@@ -2,6 +2,7 @@
 
 ---
 <p> Hey! I'm Zeke/Fritz!!! If you're reading this, chances are you saw me on ponytown or you seen me in someone's follow list. I'm typically sitting on my friend, don't be afraid to whisper me ir say hi ^_^ </p>
+<img width="396" height="369" alt="EzekielTDTWPose1" src="https://github.com/user-attachments/assets/d787d2a2-cc50-452e-afbd-46b911b77831" />
 
 ---
 You guys are gonna hate this... I'm a fictionkin (WOW LAAAAAME) of multiple characters but my highest kin is Ezekiel from *Total Drama* if it weren't so disgustingly obvious...
@@ -13,6 +14,7 @@ You guys are gonna hate this... I'm a fictionkin (WOW LAAAAAME) of multiple char
 
 ---
 I'm a yumeshipper!!!! If you don't like that block me or something idk. SOME of my f/o's are on my pronouns.cc, but not all. Some I'm too scared to add.
+<img width="1057" height="800" alt="Ezekiel_sleeping (1)" src="https://github.com/user-attachments/assets/97fbcc0a-8a35-43f3-b42b-7b665cbbe049" />
 
 ---
 <img width="696" height="367" alt="EzekielFell" src="https://github.com/user-attachments/assets/692527cb-8e02-4393-8877-3b949dd6f47d" />
