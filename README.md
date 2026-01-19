@@ -1,20 +1,22 @@
-<img width="369" height="321" alt="EzekielCrouch1 (1)" src="https://github.com/user-attachments/assets/5b972bfe-d500-437b-89c1-b8d77245f745" />
+![Scene 1x1x1x1 ♡ @yuriziku (1)](https://github.com/user-attachments/assets/9eae2fd7-a8ce-4938-9bd7-3441adafda5b)
+<p align="center"> Yo! I'm <b>Zeke</b> (<i>u may also know me as Fritz</i>)! I'm 19 (<i>birthday is May 3</i>) and use he/it pronouns as well as pup/pups, claw/claws, and were/weres neopronouns. I identify as agender and bisexual, and I'm also open to polyamory. I taught myself how to draw and focus mostly on digital works. I'm also a total NERD when it comes to insects (<i>my dream career is orthopterology</i>).
 
 ---
-<p> Hey! I'm Zeke/Fritz!!! If you're reading this, chances are you saw me on ponytown or you seen me in someone's follow list. I'm typically sitting on my friend, don't be afraid to whisper me ir say hi ^_^ </p>
-<img width="396" height="369" alt="EzekielTDTWPose1" src="https://github.com/user-attachments/assets/d787d2a2-cc50-452e-afbd-46b911b77831" />
+![1b13d70a-b8a8-4dab-8b19-91cbb819b4ee](https://github.com/user-attachments/assets/0ab3f832-009e-478f-bf36-d225ead4b5af)
+<p align="center"> I'm a disgustingly anxious individual (<i> I've been struggling with anxiety since I was a kid...</i>) and thank god I'm medicated. I can also be insanely awkward. I tend to yap about topics I'm passionate about and can do so for hours. Especially insects!
+  
+---
+<img width="1080" height="1080" alt="Untitled32_20260118190939" src="https://github.com/user-attachments/assets/ec784dbd-fde4-41f5-bf1b-c93a64360dfe" />
+<p align="center"> I'm really into Total Drama, FNaF, Pokémon, Loomian Legacy, and Deddy Bears. I just recently got into Block Tales on my own accord. I'm begging other Total Drama fans to interact!!! Especially if you love World Tour, that's my absolute FAVORITE season.
 
 ---
-You guys are gonna hate this... I'm a fictionkin (WOW LAAAAAME) of multiple characters but my highest kin is Ezekiel from *Total Drama* if it weren't so disgustingly obvious...
-<img width="332" height="105" alt="Zeke_impact" src="https://github.com/user-attachments/assets/a07b5d76-40a7-4c45-a46e-c2f5d11219c7" />
+<p align="center"> <b>On my ponytown, my name can mean many different things...</b>
+<br>DNIUF = Do Not Interact Unless Friend
+<br>NV/Nonverb = I will not say a word. Usually overstimulated or in a panic
+<br> F/O = One of my yumes
+<br> Fictkin/Kin = One of my fictionkins
+<br> C + H = Cuddle and hiding okay
+<br> AFK = Away from keyboard
 
 ---
-**I'm medicated for anxiety** but that doesn't mean I can recover quick or that I'm immune to the affects of it. Typically I can still communicate, however, there are some times I go nonverbal (*will be in the name of my skin on ponytown*) because of it. 
-<img width="1113" height="777" alt="Zeke_cool (1)" src="https://github.com/user-attachments/assets/6f4e69ef-aa74-4a7a-9886-b25cf803a7de" />
-
----
-I'm a yumeshipper!!!! If you don't like that block me or something idk. SOME of my f/o's are on my pronouns.cc, but not all. Some I'm too scared to add.
-<img width="1057" height="800" alt="Ezekiel_sleeping (1)" src="https://github.com/user-attachments/assets/97fbcc0a-8a35-43f3-b42b-7b665cbbe049" />
-
----
-<img width="696" height="367" alt="EzekielFell" src="https://github.com/user-attachments/assets/692527cb-8e02-4393-8877-3b949dd6f47d" />
+<b>1x1x1x1 art by Yuriziku, Pest art by rephantasy, Griefer art by D0geee!!!</b>
