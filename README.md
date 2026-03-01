@@ -2,7 +2,7 @@
 
 <p align="center"> Yo! I'm <b>Ezekiel</b>! I'm 19 (<i>birthday is May 3</i>) and use it/pup pronouns as well as he/him. I identify as agender and bisexual, and I'm also open to polyamory. I taught myself how to draw and focus mostly on digital works. I'm also a total NERD when it comes to insects (<i>my dream career is orthopterology</i>).
 
-  ![Tumblr_l_18039905864886](https://github.com/user-attachments/assets/cabe59ae-3e2e-4505-a87d-ca7be08f51f4)
+  ![](https://github.com/user-attachments/assets/cabe59ae-3e2e-4505-a87d-ca7be08f51f4)
 
 
 <p align="center"> I'm a disgustingly anxious individual (<i> I've been struggling with anxiety since I was a kid...</i>) and thank god I'm medicated. I can also be insanely awkward. I tend to yap about topics I'm passionate about and can do so for hours. Especially insects!
@@ -24,3 +24,9 @@
 <br> AFK = Away from keyboard
 
 <img width="1024" height="576" alt="Untitled107_20260214001836" src="https://github.com/user-attachments/assets/d12303e4-a37f-4ff4-943d-3b48edf0b52d" />
+
+![Tumblr_l_18039905864886](https://github.com/user-attachments/assets/bc3cc015-b249-4219-8f6c-7c82c5e09ab7)
+
+I am <b>THE</b> Dick Hardly yumeshipper!!! I don't play when it comes to him!!! He's lowkey my oshi, too (I have yet to make Oshikatsu crafts for him). DON'T FUCKING TEST ME, THAT'S MY MAN!!!!!!!!!!!!!!!!!!!
+<img width="1080" height="752" alt="Untitled122_20260218230555" src="https://github.com/user-attachments/assets/e81502b0-2d06-4c7f-b944-8ab1c1cc1f62" />
+
