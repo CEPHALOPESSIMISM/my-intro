@@ -37,3 +37,14 @@
 did you know, with boost mobile you c
 
 <img width="498" height="471" alt="aqua-teen-hunger-force-frylock" src="https://github.com/user-attachments/assets/1eedd1d8-f557-47f7-b0ec-948fe6b20137" />
+
+<img width="498" height="374" alt="aqua-teen-hunger-force-master-shake (1)" src="https://github.com/user-attachments/assets/2ab054b4-6ca1-483a-9169-f74f577f8a5e" />
+
+<img width="498" height="330" alt="dance-aqua-teen-hunger-force" src="https://github.com/user-attachments/assets/baa8c86c-8682-4b3e-9307-e1c06cd9b847" />
+
+<img width="498" height="498" alt="master-shake-aqua-teen-hunger-force (1)" src="https://github.com/user-attachments/assets/8ed16dbd-a3fd-4361-8992-096257965e83" />
+
+<img width="400" height="280" alt="aqua-teen-hunger-force-athf" src="https://github.com/user-attachments/assets/aba2b363-75e4-4b75-bacd-03eabdf373dc" />
+<img width="498" height="364" alt="master-shake-fall" src="https://github.com/user-attachments/assets/d7640479-c233-49aa-9ae2-5905d912ebb6" />
+
+<img width="498" height="281" alt="master-shake-shake" src="https://github.com/user-attachments/assets/e0d44926-f8b9-4d09-95de-a25af22ab8aa" />
