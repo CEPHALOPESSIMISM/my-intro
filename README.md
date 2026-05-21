@@ -24,4 +24,16 @@
 
 ɪ ᴀʟꜱᴏ ꜱʜᴜᴛ ᴅᴏᴡɴ ɪɴ ᴛɪᴍᴇꜱ ᴏꜰ ꜱᴛʀᴇꜱꜱ, ʟɪᴋᴇ ɪɴ ᴄᴀꜱᴇꜱ ᴡʜᴇʀᴇ ɪ ꜱᴇɴꜱᴇ ᴀ ꜱᴛʀᴀɪɴ ɪɴ ᴀ ꜰʀɪᴇɴᴅꜱʜɪᴘ. ɪ'ᴍ ᴀʟꜱᴏ ᴀ ᴅᴏᴏʀᴍᴀᴛ ᴛᴏ ᴇᴠᴇʀʏᴏɴᴇ. ɪ'ᴍ ᴛʀʏɪɴɢ ᴛᴏ ᴡᴏʀᴋ ᴏɴ ᴛʜɪꜱ.
 
+<img width="736" height="736" alt="Untitled350_20260521021929" src="https://github.com/user-attachments/assets/e1bde513-c9b2-4bf1-bf65-56fd11edda17" />
+
+<b> and now, time for the MASTER SHAKE ZULA EPIC AWESOMESAUCE GIF DUMP PALOOZA ELECTRIC BOOGALOO!!!
+
 <img width="400" height="307" alt="master-shake-aqua-teen-hunger-force" src="https://github.com/user-attachments/assets/640f0a97-d10b-40cb-a9ef-64b62a631edc" />
+
+<img width="498" height="354" alt="number-one-in-the-hood-g-spaghetti" src="https://github.com/user-attachments/assets/9ce07489-96f3-4b3a-8e8a-acc36a363416" />
+
+<img width="498" height="367" alt="master-shake-meatwad" src="https://github.com/user-attachments/assets/8a00fdb6-5b7c-4168-9a6c-a2826d7e5ff3" />
+
+did you know, with boost mobile you c
+
+<img width="498" height="471" alt="aqua-teen-hunger-force-frylock" src="https://github.com/user-attachments/assets/1eedd1d8-f557-47f7-b0ec-948fe6b20137" />
