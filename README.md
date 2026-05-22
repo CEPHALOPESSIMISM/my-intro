@@ -48,3 +48,7 @@ did you know, with boost mobile you c
 <img width="498" height="364" alt="master-shake-fall" src="https://github.com/user-attachments/assets/d7640479-c233-49aa-9ae2-5905d912ebb6" />
 
 <img width="498" height="281" alt="master-shake-shake" src="https://github.com/user-attachments/assets/e0d44926-f8b9-4d09-95de-a25af22ab8aa" />
+
+CREDITS:
+first graphic - art by mello, edit by me
+second graphic - art by me, edit by me
