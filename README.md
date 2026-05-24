@@ -26,6 +26,8 @@
 
 <img width="736" height="736" alt="Untitled350_20260521021929" src="https://github.com/user-attachments/assets/e1bde513-c9b2-4bf1-bf65-56fd11edda17" />
 
+say hello to my bestie [violet/phoenix](https://github.com/VIOLETBUGZ) they r the coolest ever trust..
+
 <b> and now, time for the MASTER SHAKE ZULA EPIC AWESOMESAUCE GIF DUMP PALOOZA ELECTRIC BOOGALOO!!!
 
 <img width="400" height="307" alt="master-shake-aqua-teen-hunger-force" src="https://github.com/user-attachments/assets/640f0a97-d10b-40cb-a9ef-64b62a631edc" />
