@@ -1,4 +1,5 @@
-<img width="736" height="736" alt="Untitled350_20260522042105" src="https://github.com/user-attachments/assets/bd4e1c99-2cad-4715-96d8-b8911f50c468" />
+<img width="736" height="736" alt="Untitled360_20260524163148" src="https://github.com/user-attachments/assets/c5f5820c-f7c6-4217-b70b-a92fd7b2e81f" />
+
 
 <img width="532" height="22" alt="tumblr_0dc38148631939c832222514a8a94a1f_245accc4_540" src="https://github.com/user-attachments/assets/f272996a-40b0-4272-b232-bd07b1039771" />
 
@@ -24,7 +25,7 @@
 
 ɪ ᴀʟꜱᴏ ꜱʜᴜᴛ ᴅᴏᴡɴ ɪɴ ᴛɪᴍᴇꜱ ᴏꜰ ꜱᴛʀᴇꜱꜱ, ʟɪᴋᴇ ɪɴ ᴄᴀꜱᴇꜱ ᴡʜᴇʀᴇ ɪ ꜱᴇɴꜱᴇ ᴀ ꜱᴛʀᴀɪɴ ɪɴ ᴀ ꜰʀɪᴇɴᴅꜱʜɪᴘ. ɪ'ᴍ ᴀʟꜱᴏ ᴀ ᴅᴏᴏʀᴍᴀᴛ ᴛᴏ ᴇᴠᴇʀʏᴏɴᴇ. ɪ'ᴍ ᴛʀʏɪɴɢ ᴛᴏ ᴡᴏʀᴋ ᴏɴ ᴛʜɪꜱ.
 
-<img width="736" height="736" alt="Untitled350_20260521021929" src="https://github.com/user-attachments/assets/e1bde513-c9b2-4bf1-bf65-56fd11edda17" />
+<img width="736" height="736" alt="Untitled360_20260524163120" src="https://github.com/user-attachments/assets/b997e2d1-0bdd-46ab-88e1-0a99606fa88b" />
 
 say hello to my bestie [violet/phoenix](https://github.com/VIOLETBUGZ) they r the coolest ever trust..
 
@@ -51,8 +52,3 @@ did you know, with boost mobile you c
 
 <img width="498" height="281" alt="master-shake-shake" src="https://github.com/user-attachments/assets/e0d44926-f8b9-4d09-95de-a25af22ab8aa" />
 
-CREDITS:
-
-first graphic - art by mello, edit by me
-
-second graphic - art by me, edit by me
